@@ -5,7 +5,7 @@
 **Email_2:** tonia_smyrliadi@yahoo.gr
 
 ## Studies
-2017-today: Student on Computer science Department
+2017-today: Student on Computer Science Department
 
 2003-2010: Graduate on Μarketing and Αdvertising department
 School of administration and economics of Athens
