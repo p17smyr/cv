@@ -15,7 +15,7 @@ School of Administration and Economics of Athens
 
 
 ## Work experience
-2017-2018:Social Service of the Municipality of Corfu
+2017-2018: Accounting Department, Social Service of the Municipality of Corfu,
 
 2012-2015: CEO, 2020 Advertising SA, Metaxourgeio
 
