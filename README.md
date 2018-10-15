@@ -1,6 +1,9 @@
 ## CV - ANTONIA SMYRLIADI
 
 ## Personal details
+
+**Age:** 33
+
 **Email_1:** p17smyr@ionio.gr
 
 **Email_2:** tonia_smyrliadi@yahoo.gr
