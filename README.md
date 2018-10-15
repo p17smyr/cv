@@ -19,7 +19,7 @@ School of Administration and Economics of Athens
 
 2012-2015: CEO, 2020 Advertising SA, Metaxourgeio
 
-2010-2012: Customers Director, 2020 Advertising SA, Metaxourgeio
+2010-2012: Customer Director, 2020 Advertising SA, Metaxourgeio
 
 2007-2010: Customer Service, 2020 Advertising SA, Metaxourgeio
 
