@@ -7,8 +7,8 @@
 ## Studies
 2017-today: Student on Computer Science Department
 
-2003-2010: Graduate on Μarketing and Αdvertising department
-School of administration and economics of Athens
+2003-2010: Graduate on Μarketing and Αdvertising Department
+School of Administration and Economics of Athens
 
 
 ## Work experience
