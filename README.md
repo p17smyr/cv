@@ -11,6 +11,8 @@
 2003-2010: Graduate on Μarketing and Αdvertising Department
 School of Administration and Economics of Athens
 
+2000-2003: 1st High School of Glyfada
+
 
 ## Work experience
 2017-2018:Social Service of the Municipality of Corfu
