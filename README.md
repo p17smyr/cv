@@ -1,4 +1,6 @@
-## Welcome to GitHub Pages
+## CV - ANTONIA SMYRLIADI
+
+## Personal details
 
 You can use the [editor on GitHub](https://github.com/p17smyr/cv/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
